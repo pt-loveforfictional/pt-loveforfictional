@@ -1,10 +1,10 @@
 <p align="center">
   <img 
-    src="https://github.com/pt-loveforfictional/wip./blob/574f400bb60c35fc5cc5ed66568761fa1fcbd608/Untitled7_20260803192700.png" />
+    src="https://github.com/pt-loveforfictional/pt-loveforfictional/blob/9ca117843a1f03d35c8c6cc43a1892eee7fccaf5/Untitled7_20260803192700.png" />
 
 <p align="center">
   <img
-    src="https://github.com/pt-loveforfictional/wip./blob/79d0bdbb0101ee592a1a854c0f51e581b5add04a/pony-town-Pony-dance%20move%201-blinking-padded-4x.gif" width="120" />
+    src="https://github.com/pt-loveforfictional/pt-loveforfictional/blob/f6b01b943888a687e8cdbd0835d510c9e626bf94/pony-town-Pony-dance%20move%201-blinking-padded-4x.gif" width="120" />
     
 $$\color{#EEE068} \text{ᥒomιᥒᥲtᥱ ყoυrsᥱᥣf or somᥱoᥒᥱ wιth thᥱ ყυmᥱshιρ ᥴhᥲrᥲᥴtᥱr!}$$
 $$\color{#E88D5E} \text{doυbᥣᥱs ᥲrᥱ ᥲᥣᥣowᥱd . do ᥒot hᥲrᥲss ყoυr doυbᥣᥱs whᥱᥒ ყoυ'rᥱ ᥲ ᥒoᥒ-shᥲrιᥒg or othᥱrs .}$$
