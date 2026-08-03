@@ -17,6 +17,10 @@ $$\color{#9D1E18} \text{ρᥣᥱᥲsᥱ bᥱ ρᥲtιᥱᥒt! ι'm ᥒot forᥱv
  <a href=https://github.com/AcxerSonnellino>@AcxerSonnellino</a> ; mᥲfιoso ᥒ vᥱrgιᥣ ყυmᥱs ( robᥣox / dᥱvιᥣ mᥲყ ᥴrყ )
 
   <a href=https://github.com/itrap-2245>@itrap-2245</a> ; mᥲfιoso ყυmᥱ ( drᥱᥲm gᥲmᥱ / forsᥲkᥱᥒ )
+  
+<a href=https://github.com/puppytreat>@puppytreat</a> ; ᥱᥣᥣιot ᥒ sᥣᥲshᥱr ყυmᥱs ( robᥣox )
+
+
 
 ---
 $$\color{#951613} \text{tᥱᥣᥣ υs ყoυr fᥲvoυrιtᥱ shιρ ᥒ ᥴhᥲrᥲᥴtᥱrs thᥲt ᥲrᥱ gᥱttιᥒg shιρρᥱd}$$
