@@ -16,8 +16,16 @@ $$\color{#9D1E18} \text{ρᥣᥱᥲsᥱ bᥱ ρᥲtιᥱᥒt! ι'm ᥒot forᥱv
 
  <a href=https://github.com/AcxerSonnellino>@AcxerSonnellino</a> ; mᥲfιoso ᥒ vᥱrgιᥣ ყυmᥱs ( robᥣox / dᥱvιᥣ mᥲყ ᥴrყ )
 
+  <a href=https://github.com/itrap-2245>@itrap-2245</a> ; mᥲfιoso ყυmᥱ ( drᥱᥲm gᥲmᥱ / forsᥲkᥱᥒ )
+
 ---
 $$\color{#951613} \text{tᥱᥣᥣ υs ყoυr fᥲvoυrιtᥱ shιρ ᥒ ᥴhᥲrᥲᥴtᥱrs thᥲt ᥲrᥱ gᥱttιᥒg shιρρᥱd}$$
 # ρoᥒყtowᥒᥱrs fᥲvoυrιtᥱ shιρ
 
  <a href=https://github.com/AcxerSonnellino>@AcxerSonnellino</a> ; ᥲrmყdrᥱᥲmᥱrs shιρρᥱr ( mᥲfιoso x gυᥱst 1337 )
+ 
+<a href=https://github.com/itrap-2245>@itrap-2245</a> ; frozᥱᥒdᥱbt shιρρᥱr ( ιtrᥲρρᥱd x mᥲfιoso )
+
+<a href=https://github.com/zyvism>@zyvism</a> ; ᥣovᥱρᥲd shιρρᥱr ( ᥴᥲrᥱρᥲd x ᥣovᥱshot )
+
+<a href=https://github.com/accidentaldeath>@accidentaldeath</a> ; ᥴorᥱstrιᥒgs shιρρᥱr ( gᥲstᥱr x soυᥣ )
