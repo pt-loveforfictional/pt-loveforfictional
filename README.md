@@ -14,7 +14,7 @@ $$\color{#9D1E18} \text{ρᥣᥱᥲsᥱ bᥱ ρᥲtιᥱᥒt! ι'm ᥒot forᥱv
 ---
 # ყυmᥱshιρρᥱrs of ρoᥒყtowᥒ!
 
- <a href=https://github.com/AcxerSonnellino>@AcxerSonnellino</a> ; mᥲfιoso ᥒ tᥱᥣᥲmoᥒ ყυmᥱs ( forsᥲkᥱᥒ / robᥣox )
+ <a href=https://github.com/AcxerSonnellino>@AcxerSonnellino</a> ; mᥲfιoso ᥒ vᥱrgιᥣ ყυmᥱs ( robᥣox / dᥱvιᥣ mᥲყ ᥴrყ )
 
 ---
 $$\color{#951613} \text{tᥱᥣᥣ υs ყoυr fᥲvoυrιtᥱ shιρ ᥒ ᥴhᥲrᥲᥴtᥱrs thᥲt ᥲrᥱ gᥱttιᥒg shιρρᥱd}$$
