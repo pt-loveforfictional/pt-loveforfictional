@@ -61,7 +61,7 @@ $$\color{#951613} \text{tᥱᥣᥣ υs ყoυr fᥲvoυrιtᥱ shιρ ᥒ ᥴh�
 
  <a href=https://github.com/AcxerSonnellino>@AcxerSonnellino</a> ; ᥲrmყdrᥱᥲmᥱrs shιρρᥱr ( mᥲfιoso x gυᥱst 1337 )
  
-<a href=https://github.com/itrap-2245>@itrap-2245</a> ; frozᥱᥒdᥱbt shιρρᥱr ( ιtrᥲρρᥱd x mᥲfιoso )
+<a href=https://github.com/itrap-2245>@itrap-2245</a> ' <a href=https://github.com/SONNELLINOENTHUSIAST>@SONNELLINOENTHUSIAST</a> ; frozᥱᥒdᥱbt shιρρᥱr ( ιtrᥲρρᥱd x mᥲfιoso )
 
 <a href=https://github.com/zyvism>@zyvism</a> ; ᥣovᥱρᥲd shιρρᥱr ( ᥴᥲrᥱρᥲd x ᥣovᥱshot )
 
