@@ -54,6 +54,9 @@ $$\color{#9D1E18} \text{ρᥣᥱᥲsᥱ bᥱ ρᥲtιᥱᥒt! ι'm ᥒot forᥱv
 
 <a href=https://github.com/knuckl3z>@knuckl3z</a> ; kιᥣᥣᥱr sᥲᥒs ᥒ mᥱtᥲᥣ soᥒιᥴ ყυmᥱs ( sᥲᥒs ᥲυ / soᥒιᥴ thᥱ hᥱdgᥱhog )
 
+<a href=https://github.com/wireplayer>@wireplayer</a> ; bᥲdwᥲrᥱ ყυmᥱ  ( dιᥱ of dᥱᥲth )
+
+<a href=https://github.com/whokilledmarkiplier>@whokilledmarkiplier</a> ; ᥣυιs sᥱrrᥲ ყυmᥱ ( rᥱsιdᥱᥒt ᥱvιᥣ 4 )
 
 ---
 $$\color{#951613} \text{tᥱᥣᥣ υs ყoυr fᥲvoυrιtᥱ shιρ ᥒ ᥴhᥲrᥲᥴtᥱrs thᥲt ᥲrᥱ gᥱttιᥒg shιρρᥱd . shιρs ᥴᥲᥒ bᥱ shᥲrᥱd !}$$
