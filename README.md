@@ -58,6 +58,16 @@ $$\color{#9D1E18} \text{ρᥣᥱᥲsᥱ bᥱ ρᥲtιᥱᥒt! ι'm ᥒot forᥱv
 
 <a href=https://github.com/whokilledmarkiplier>@whokilledmarkiplier</a> ; ᥣυιs sᥱrrᥲ ყυmᥱ ( rᥱsιdᥱᥒt ᥱvιᥣ 4 )
 
+<a href=https://github.com/yellowdeltarune>@yellowdeltarune</a> ; bᥣυᥱ ყυmᥱ ( dᥱᥣtᥲrυᥒᥱ )
+
+<a href=https://github.com/little-daydreamer>@little-daydreamer</a> ; jιᥲoqιυ ᥒ ᥣυυk ყυmᥱ ( hsr / wυwᥲ )
+
+<a href=https://github.com/foxtartaglia>@foxtartaglia</a> ; ᥴhιᥣdᥱ ყυmᥱ ( gᥱᥒshιᥒ ιmρᥲᥴt )
+
+<a href=https://github.com/peteybenjaminparker>@peteybenjaminparker</a> ; ρᥱtᥱr ρᥲrkᥱr ᥒ sᥲm wιᥣsoᥒ ყυmᥱ ( mᥲrvᥱᥣ )
+
+<a href=https://github.com/mlgkent>@mlgkent</a> ; dᥲmιᥲᥒ wᥲყᥒᥱ ყυmᥱ ( dᥴ )
+
 ---
 $$\color{#951613} \text{tᥱᥣᥣ υs ყoυr fᥲvoυrιtᥱ shιρ ᥒ ᥴhᥲrᥲᥴtᥱrs thᥲt ᥲrᥱ gᥱttιᥒg shιρρᥱd . shιρs ᥴᥲᥒ bᥱ shᥲrᥱd !}$$
 # ρoᥒყtowᥒᥱrs fᥲvoυrιtᥱ shιρ
@@ -101,3 +111,11 @@ $$\color{#951613} \text{tᥱᥣᥣ υs ყoυr fᥲvoυrιtᥱ shιρ ᥒ ᥴh�
 <a href=https://github.com/rakviyem>@rakviyem</a> ; ᥴhᥱrrყbomb shιρρᥱr ( ᥲrtιfιᥴᥱr x hυᥒtᥱr )
 
 <a href=https://github.com/knuckl3z>@knuckl3z</a> ; kᥒυxᥲdow shιρρᥱr ( kᥒυᥴkᥣᥱs thᥱ ᥱᥴhιdᥒᥲ x shᥲdow thᥱ hᥱdgᥱhog )
+
+<a href=https://github.com/yellowdeltarune>@yellowdeltarune</a> ; romᥲᥴk shιρρᥱr ( romᥱo x jᥲᥴk )
+
+<a href=https://github.com/gambling-addict>@gambling-addict</a> ; mᥲᥒdყ shιρρᥱr ( rodყ x mᥲᥒoᥒ )
+
+<a href=https://github.com/foxtartaglia>@foxtartaglia</a> ; ᥴhᥲᥱყᥲ shιρρᥱr ( ᥴhιᥣdᥱ x kᥲᥱყᥲ )
+
+<a href=https://github.com/mlgkent>@mlgkent</a> ; dᥲmιjoᥒ shιρρᥱr ( dᥲmιᥲᥒ wᥲყᥒᥱ x joᥒ kᥱᥒt )
