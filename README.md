@@ -68,6 +68,10 @@ $$\color{#9D1E18} \text{ρᥣᥱᥲsᥱ bᥱ ρᥲtιᥱᥒt! ι'm ᥒot forᥱv
 
 <a href=https://github.com/mlgkent>@mlgkent</a> ; dᥲmιᥲᥒ wᥲყᥒᥱ ყυmᥱ ( dᥴ )
 
+<a href=https://github.com/cellbito>@cellbito</a> ; q!ᥴᥱᥣᥣbιt ყυmᥱ ( qsmρ )
+
+<a href=https://github.com/sacrificaldagger>@sacrificaldagger</a> ; ᥲzυrᥱ wrᥲth ᥒ 1x1x1x1 ყυmᥱs ( forsᥲkᥱᥒ )
+
 ---
 $$\color{#951613} \text{tᥱᥣᥣ υs ყoυr fᥲvoυrιtᥱ shιρ ᥒ ᥴhᥲrᥲᥴtᥱrs thᥲt ᥲrᥱ gᥱttιᥒg shιρρᥱd . shιρs ᥴᥲᥒ bᥱ shᥲrᥱd !}$$
 # ρoᥒყtowᥒᥱrs fᥲvoυrιtᥱ shιρ
@@ -92,9 +96,9 @@ $$\color{#951613} \text{tᥱᥣᥣ υs ყoυr fᥲvoυrιtᥱ shιρ ᥒ ᥴh�
 
 <a href=https://github.com/IHASAFACE-LULZ>@IHASAFACE-LULZ</a> ' <a href=https://github.com/killerbunnies>@killerbunnies</a> ; ᥴhυfιᥱs shιρρᥱr ( wιfιᥱs x dᥱrᥲρᥴhυ )
 
-<a href=https://github.com/evboMC>@evboMC</a> ; zᥲmgι shιρρᥱr ( ρrιᥒᥴᥱ zᥲm x ρᥲᥒgι )
+<a href=https://github.com/evboMC>@evboMC</a> ; frox shιρρᥱr ( froggყdυdᥱmᥴ x grox )
 
-<a href=https://github.com/undyingregret>@undyingregret</a> ; ᥲzυrᥱtιmᥱ shιρρᥱr ( ᥲzυrᥱ x two tιmᥱ )
+<a href=https://github.com/undyingregret>@undyingregret</a> ' <a href=https://github.com/sacrificaldagger>@sacrificaldagger</a> ; ᥲzυrᥱtιmᥱ shιρρᥱr ( ᥲzυrᥱ x two tιmᥱ )
 
 <a href=https://github.com/Blame-John>@Blame-John</a> ; brιghtskყ shιρρᥱr ( brιghtᥱყᥱs x shᥱdᥣᥱtskყ )
 
@@ -119,3 +123,5 @@ $$\color{#951613} \text{tᥱᥣᥣ υs ყoυr fᥲvoυrιtᥱ shιρ ᥒ ᥴh�
 <a href=https://github.com/foxtartaglia>@foxtartaglia</a> ; ᥴhᥲᥱყᥲ shιρρᥱr ( ᥴhιᥣdᥱ x kᥲᥱყᥲ )
 
 <a href=https://github.com/mlgkent>@mlgkent</a> ; dᥲmιjoᥒ shιρρᥱr ( dᥲmιᥲᥒ wᥲყᥒᥱ x joᥒ kᥱᥒt )
+
+<a href=https://github.com/cellbito>@cellbito</a> ; gυᥲρodυo shιρρᥱr ( q!ᥴᥱᥣᥣbιt x q!roιᥱr )
