@@ -100,6 +100,25 @@ $$\color{#9D1E18} \text{ρᥣᥱᥲsᥱ bᥱ ρᥲtιᥱᥒt! ι'm ᥒot forᥱv
 
 <a href=https://github.com/cowpokke>@cowpokke</a> ; gᥲrყ smιth ყυmᥱ ( bυᥣᥣყ gᥲmᥱ )
 
+<a href=https://github.com/sebvsene>@sebvsene</a> ; sυρᥱrboყ ρrιmᥱ's ყυmᥱ ( dᥴ )
+
+<a href=https://github.com/fishthing>@fishthing</a> ; fᥣowᥱrყ ყυmᥱ ( dᥱᥣtᥲrυᥒᥱ )
+
+<a href=https://github.com/disorderlyfashion>@disorderlyfashion</a> ; vᥱroᥒιkᥲ mᥲყdᥲყ's ყυmᥱ ( hb )
+
+<a href=https://github.com/karlgvuts>@karlgvuts</a> ; wιkιᥣιυs ყυmᥱ ( gυts ᥲᥒd bᥣoodρowdᥱr )
+
+<a href=https://github.com/ReplicaOfAffection>@ReplicaOfAffection</a> ; goᥣfshιρ ᥒ mrs ყυmᥱs ( υmᥲmυsυmᥱ / how to dᥲtᥱ ᥲᥒ ᥱᥒtιtყ )
+
+<a href=https://github.com/5aimatsu>@5aimatsu</a> ; shυιᥴhι sᥲιhᥲrᥲ ყυmᥱ ( dᥲᥒgᥲroᥒρᥲ )
+
+<a href=https://github.com/ThatOrangeCatt>@thatorangecatt</a> ; grᥲᥴᥱ ᥲshᥴroft ყυmᥱ ( rᥱsιdᥱᥒt ᥱvιᥣ )
+
+<a href=https://github.com/fleurdoIl>@fleurdoIl</a> ; gᥱto sυgυrυ ყυmᥱ ( jυjυtsυ kᥲιsᥱᥒ )
+
+<a href=https://github.com/gaylukas>@gaylukas</a> ; ᥲιdᥱᥒ ᥒ ᥒoᥣι ყυmᥱs ( mᥴsm / robᥣox )
+
+
 ---
 $$\color{#951613} \text{tᥱᥣᥣ υs ყoυr fᥲvoυrιtᥱ shιρ ᥒ ᥴhᥲrᥲᥴtᥱrs thᥲt ᥲrᥱ gᥱttιᥒg shιρρᥱd . shιρs ᥴᥲᥒ bᥱ shᥲrᥱd !}$$
 # ρoᥒყtowᥒᥱrs fᥲvoυrιtᥱ shιρ
@@ -173,3 +192,13 @@ $$\color{#951613} \text{tᥱᥣᥣ υs ყoυr fᥲvoυrιtᥱ shιρ ᥒ ᥴh�
 <a href=https://github.com/murderbynumberz>@murderbynumberz</a> ; ρᥲιᥒtbყᥒυmbᥱrs shιρρᥱr ( rιᥴhᥲrd hᥲყwood x hᥱᥒrყ ᥣᥱthᥲm )
 
 <a href=https://github.com/tainted-soul>@tainted-soul</a> ; soᥣᥲᥒgᥱᥣo shιρρᥱr ( ᥒιᥴo dι ᥲᥒgᥱᥣo x wιᥣᥣ soᥣᥲᥴᥱ )
+
+<a href=https://github.com/fishthing>@fishthing</a> ; 02763 shιρρᥱrs ( 2763 x 0 )
+
+<a href=https://github.com/disorderlyfashion>@disorderlyfashion</a> ; ριzzᥲdᥱbt shιρρᥱr ( ᥱᥣᥣιot x mᥲfιoso )
+
+<a href=https://github.com/karlgvuts>@karlgvuts</a> ; hottᥱᥲ shιρρᥱr ( jᥲᥴob x kᥲrᥣ )
+
+<a href=https://github.com/ReplicaOfAffection>@ReplicaOfAffection</a> ; tᥲყᥲᥒo shιρρᥱr ( tᥲᥱko x ᥲყᥲᥒo )
+
+<a href=https://github.com/ThatOrangeCatt>@thatorangecatt</a> ; ᥣᥱshᥣᥱყ shιρρᥱr ( ᥣᥱoᥒ x ᥲshᥣᥱყ )
